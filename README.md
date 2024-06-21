@@ -3,4 +3,4 @@ Orel fucked up a lot and was put on Rat
 ]
 
 
-my discord:dxbr0
+my discord:d1ce0.
